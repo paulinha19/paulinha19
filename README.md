@@ -8,4 +8,4 @@ estou estudando alura
 
 @paula.ferreira.goncalves@escola.pr.gov.br
 
-@pa8ulinha_ofc_18
+@paulinha_ofc_18
